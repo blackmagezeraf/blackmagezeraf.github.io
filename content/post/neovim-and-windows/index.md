@@ -13,4 +13,6 @@ We all know I'm going to mention The Myth, The Legend [The Primeagen](https://yo
 
 >Do not do what you love. Learn to love what you are doing.
 
-Overall live doesn't unfold the way you mostly think it should.
+Life doesn't unfold the way you planned think it should.
+
+The video that popped up in my feed was [this](https://www.youtube.com/watch?v=w7i4amO_zaE). Watching this video and looking at Primeagen moving FAST it was like a magic to me.
