@@ -1,3 +1,7 @@
-public
-resources
+./.devcontainer/
+./.vscode/
+
+public/
+resources/
+
 .hugo_build.lock
